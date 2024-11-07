@@ -1,1 +1,2 @@
-# CAPSTONE-SPIRIT
+# CAPSTONE-PROJECT
+Semangat Guys....
